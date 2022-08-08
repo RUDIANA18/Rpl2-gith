@@ -1,2 +1,4 @@
 # Rpl2-gith
-Projek
+Nama : Asep rudiana
+Kelas : 11 pplg 2
+Hobi : main game
